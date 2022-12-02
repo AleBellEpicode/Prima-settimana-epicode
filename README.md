@@ -1,2 +1,0 @@
-# Prima-settimana-epicode
-Huha!
